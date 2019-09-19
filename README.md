@@ -1,0 +1,2 @@
+# pribadi
+untuk tugas akhir
